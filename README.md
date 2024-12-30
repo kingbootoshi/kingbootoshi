@@ -1,9 +1,4 @@
-# I AM KING BOOTOSHI. MY KINGDOM DOMAINS ARE:
-https://bitcoinboos.com/
-
-https://discord.gg/bitcoinboos
-
-# THE KINGDOM IS OPEN TO ALL!
+# https://www.bootosh.ai/
 
 ![DiscordInviteBackground](https://github.com/kingbootoshi/kingbootoshi/assets/127834715/4a36b58c-6f9c-4d5c-b69b-f82a67efcccd)
 
